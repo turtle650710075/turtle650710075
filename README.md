@@ -1,4 +1,4 @@
-# Nathakrit MaRKMIT
+# Nathakrit Markmit
 
 Nathakrit Markmit
 Nakhonprathom
